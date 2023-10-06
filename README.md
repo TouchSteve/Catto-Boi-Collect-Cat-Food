@@ -8,4 +8,6 @@ And this level is not the same as the old The Adventures of Catto Boi level.
 but don't worry this game is definitely not deleted
 And thank you TheSteve Minecraft for creating a game like this.
 
+Update: 1.1.0 - https://www.mediafire.com/file/t756zcm5h6xitrc/Catto-Boi-Collect-Cat-Food-v1.1.0.rar/file
+
 The Adventures of Catto Boi old - https://www.mediafire.com/file/jwr2q7oxdkrna0d/the-adventures-of-catto-boi-windows.zip/file
